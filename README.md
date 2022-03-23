@@ -1,1 +1,0 @@
-# nsoarim.github.io
